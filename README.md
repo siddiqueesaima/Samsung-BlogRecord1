@@ -1,0 +1,1 @@
+# Samsung-BlogRecord1
